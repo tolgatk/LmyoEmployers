@@ -1,1 +1,1 @@
-🐙Kırklareli Üniversitesi İleri Web Programlama Final Ödevim🐙
+🐙Kırklareli Üniversitesi Lüleburgaz Meslek Yüksek Okulu İleri Web Programlama Final Ödevim🐙
